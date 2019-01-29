@@ -16,7 +16,7 @@ Draft Programme
 
 11.00 - 11.30       Coffee
 
-11.30 – 12.00      Sepsis from ward to Critical Care (TBC) I have not been able to secure a presenter for this session
+11.30 – 12.00      Sepsis from ward to Critical Care (Kath Fawcett)
 
 12.00 – 12.35      Medical frailty and ICU admission. (Jamie Gross)
 
