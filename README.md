@@ -6,7 +6,9 @@
 
 Draft Programme
 
-08.45 – 09.05      Introduction  (Ganesh Suntharalingam)
+08.45 – 09.00 Registration
+
+09.00 – 09.05 Introduction  (Ganesh Suntharalingam)
 
 09.05 – 09.45      MET calls: practical management of the deteriorating patient ( including practical management of shock) (Kath Fawcett)
 
