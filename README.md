@@ -26,6 +26,7 @@ Draft Programme
 
 ## Lecture notes
 
+[download](https://github.com/drcjar/critical-care-gim-training-day/raw/master/Combined%20GIM%20Critical%20Care%202019%20presentations%20including%20NIV%20posters.pdf)
 
 ## Registration
 
