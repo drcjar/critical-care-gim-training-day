@@ -24,6 +24,9 @@ Draft Programme
 
 12-35 - 1300 Doing the right thing: who should we admit, and what are we committing them to? (audience/panel debate) Chaired by Ganesh all presenters able to participate
 
+## Lecture notes
+
+
 ## Registration
 
  https://lasepgmdeevents.hee.nhs.uk/events/regional-training-days/22d4c580-4241-4391-82d9-9e7060e15b05/registration/3153
